@@ -16,5 +16,5 @@ Here are some ideas to get you started:
 -->
 # this is for me jsut want get a happy life 
 # **Major** : Hydrology ......
-# for now i'm a PhD student without _doctorate_
-# **email** 💬: _marvellou97fei@163.com_
+# for now i'm a PhD student without _a doctorate_
+# **email** 💬: _xiaofei.ren.1997@gmail.com_
